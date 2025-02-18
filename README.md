@@ -1,1 +1,0 @@
-# acesibilidade2025
